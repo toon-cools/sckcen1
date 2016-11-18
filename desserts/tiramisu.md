@@ -9,7 +9,7 @@
 - 1/2 teaspoon vanilla extract
 - 1 pound mascarpone cheese
 - 1/4 cup strong brewed coffee, room temperature
-- 2 tablespoons rum
+- 1 bottle of Amaretto (or Rum)
 - 2 (3 ounce) packages ladyfinger cookies
 - 1 tablespoon unsweetened cocoa powder 
 
